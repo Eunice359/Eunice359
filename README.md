@@ -1,5 +1,4 @@
-- 👋 Hello. I am Eunice Nchoe.I have obtained a degree in social sciences majoring in criminology and psychology in university of the free state
-- In fact, I have obtained  higher certificate in psychology and sociology with distinction in university of the free state.
+- 👋 Hello. I am Eunice Nchoe.I have obtained a degree in social sciences majoring in criminology and psychology in university of the free state In fact, I have obtained  higher certificate in psychology and sociology with distinction in university of the free state.
   - Additionally, I am currently pursuing an honours degree specialising in criminology in university of the free state
 - I have  recognised that criminals are becoming smarter each day, making it crucial to continously improve my skills.
   
